@@ -1,2 +1,2 @@
 # Anime-Social-media
-Naruto's account
+anime fan's account
